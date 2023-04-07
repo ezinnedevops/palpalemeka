@@ -5,4 +5,6 @@ amanda
 fedora
 This year is going to be good in Jesus name 
 I will get three jobs after graduation
-
+I am progressing
+God is good
+thanks
